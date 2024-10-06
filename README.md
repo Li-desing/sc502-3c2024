@@ -1,1 +1,1 @@
-# sc502-3c2024
+# sc502-3c2024-linethleiva-trabajosindivi
